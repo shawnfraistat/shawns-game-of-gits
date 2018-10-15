@@ -4,3 +4,5 @@ Regent.
 
 While he was indeed killed, his legend lives on. And a bunch of his kids live on.
 And the rest of Game of Thrones will spend a lot of time on those kids.
+
+Including the kid he did not father.
